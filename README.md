@@ -1,1 +1,1 @@
-# exmayer.github.io
+# exmayer.mullner.hu
